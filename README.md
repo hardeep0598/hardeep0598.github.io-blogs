@@ -1,1 +1,1 @@
-# hardeep0598.github.io-blogs
+techwithhk.codes
